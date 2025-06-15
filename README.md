@@ -1,0 +1,1 @@
+bonjour c'est zoummallah woumtigue pour lire le contenu de mom site web plaisiblement veuillez s'il vous plait rassembler les images que vous allez telecharger sur github dans un repertoire que vous allez le nommer imge et vous aurez les image sans probleme lors de la visualisation de mon site web
